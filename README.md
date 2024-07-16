@@ -4,9 +4,10 @@
 hi im noah !!!
 all my interests, dni, byi, etc. is on my [carrd](https://satoruyaoi.carrd.co/)
 if i dont respond just whisper me :P im often offtab
+
 if youre looking for me im usually near spawn or below the deck area
 
-collect my pages slend (sign my [atabook](https://aventurine.atabook.org/) )
+ uhhh sign my [atabook](https://aventurine.atabook.org/)
 
 STOP WHISPERING ME ABOUT PARTY OR SUPPORTER LIMITS WHATEVER ITS CALLED IDGAF AND I WILL NOT BE ANSWERING!!!!!!!!!!
 
